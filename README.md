@@ -1,2 +1,0 @@
-# kode-redem
-Bokep
